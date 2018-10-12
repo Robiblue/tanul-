@@ -1,0 +1,2 @@
+# tanul-
+gyakorlás
